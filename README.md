@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Python, Machine Learning**
 
-- 📫 How to reach me **alpeshpardeshi45@gmail.com**
+- 📫 How to reach me **alpeshpardeshi99@gmail.com**
 
 - ⚡ Fun fact **I Know what I have to do,**
 
